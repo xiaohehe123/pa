@@ -79,9 +79,9 @@ https://www.justia.com/lawyers/immigration-naturalization/california/los-angeles
 https://lafla.org<br/>
 
 ## 三、一些关于在美华人生活的资料
-1.美国真实的华人区到底是啥样？
+1.美国真实的华人区到底是啥样？<br/>
 http://www.wenxuecity.com/news/2013/08/09/2572160.html
 
 ## 四、可能的免费的翻译提供
-1.洛杉矶高等法院 传译员申请门户
+1.洛杉矶高等法院 传译员申请门户<br/>
 http://www.lacourt.org/irud/UI/index.aspx
