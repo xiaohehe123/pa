@@ -71,10 +71,10 @@
 
 
 ## 二、免费的政治庇护法律援助机构网站
-1.一个芝加哥的援助机构
+1.一个芝加哥的援助机构<br/>
 http://www.immigrantjustice.org <br/>
-2.列出了加州洛杉矶地区的可提供法律援助的律师机构
-https://www.justia.com/lawyers/immigration-naturalization/california/los-angeles/legal-aid-and-pro-bono-services
+2.列出了加州洛杉矶地区的可提供法律援助的律师机构<br/>
+https://www.justia.com/lawyers/immigration-naturalization/california/los-angeles/legal-aid-and-pro-bono-services<br/>
 
 ## 三、一些关于在美华人生活的资料
 1.美国真实的华人区到底是啥样？
